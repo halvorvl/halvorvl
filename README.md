@@ -1,6 +1,6 @@
 ### Hi there, I am Halvor  👋
 
-<img src="profilbilde.jpg"/ >
+<img src="profilbilde.jpg"/>
 
 I am 39 year old student at NOROOF, a vivid traveler and person that just loves to learn new things. I hva a very varied background and have been starting and running bussnies for the majority of my adult life. 
 
