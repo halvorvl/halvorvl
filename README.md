@@ -1,5 +1,7 @@
 ### Hi there, I am Halvor  👋
 
+<img src="profilbilde.jpg"/ >
+
 I am 39 year old student at NOROOF, a vivid traveler and person that just loves to learn new things. I hva a very varied background and have been starting and running bussnies for the majority of my adult life. 
 
 On my time off I spend as much time as possible with my family and friends. If that means going for a walk in the forrest, out on the ocean , in the Norwegian moantians or traveling around wolrd, doesnt really matter. As long as we are all happy, nothing else really matters. 
